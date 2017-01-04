@@ -1,4 +1,4 @@
-<h2> Mobikwik-Clone</h2>
+<h2> Mobikwik Clone Script </h2>
 <i>Best Recharge Clone Script</i><br>
 
 The best recharge clone script with different UI designs and with user-friendly interface. Clones like Freecharge, Mobikwik, Recharge now, Paytm could be provided with attractive color combinations and amazing mobile app designs. Blasting offer codes and coupon generations provided to attract more and more customers. We get to know our client’s needs and work to bring in prosperity and success. Various modules with dashing logo samples provided. Cloning of any Recharge Site could be done at ease. Wallet options enabled, which would be very helpful at time of emergency.
